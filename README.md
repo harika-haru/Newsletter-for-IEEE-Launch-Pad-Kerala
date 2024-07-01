@@ -1,2 +1,2 @@
 # Newsletter-for-IEEE-Launch-Pad-Kerala
-Link: 
+Link: https://harika-haru.github.io/Newsletter-for-IEEE-Launch-Pad-Kerala/
